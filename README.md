@@ -1,10 +1,3 @@
 # mynew-
 fdfds
-fdsfdg
-f
-gfg
-fg
-fs
-ggfg
-sf
-gs
+fdjhhjdbjhd hfhdvfjd fdh fhd fhd fjd jh jhjh 
